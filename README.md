@@ -1,4 +1,4 @@
-Política de Privacidad para la Aplicación Kaox
+Términos y Condiciones de la Política de Privacidad para la Aplicación Kaox
 
 Fecha de vigencia: 23 - 12 - 11
 
